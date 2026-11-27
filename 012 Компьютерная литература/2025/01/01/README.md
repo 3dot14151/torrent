@@ -1,4 +1,3 @@
-
 ###  Публикация: 1770535   (32332) от 01.01.2025
 
 Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guide (2021) [PDF] [EN]
