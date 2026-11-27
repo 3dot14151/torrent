@@ -7,7 +7,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://master1cbest.ru/picture_torrent/" />
+  <img src="http://master1cbest.ru/picture_torrent/018/save_picture_1091096.jpg" />
 </div>
 
 
